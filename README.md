@@ -1,2 +1,3 @@
 # hello-world
-Just another repository
+Mojca Pokralacunja, Peter Poneve, Bee Maja, Cat Copatarica.
+Lp
