@@ -1,2 +1,3 @@
 # hello-world
-Just another repository
+Bomo zmogli, bomo JA! Pepelka, črni mož, Peter Pan, Čebelica Maja. 
+Lp
